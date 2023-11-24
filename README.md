@@ -1,2 +1,2 @@
-# Skripsi-2020-2023
+# Skripsi-Ade Lippo ramdani-2022-2023
 Laporan Skripsi
